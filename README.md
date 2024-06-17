@@ -1,0 +1,1 @@
+# tel-ran-QA-hw8-10juni
